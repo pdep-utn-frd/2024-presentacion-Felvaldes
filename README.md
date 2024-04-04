@@ -14,4 +14,4 @@ Mi nombre es Felipe Valdés, tengo 20 años y actualmente estoy cursando segundo
 - programar
 ![foto gh 1](https://github.com/pdep-utn-frd/2024-presentacion-Felvaldes/assets/164426887/a1bf95e6-c03b-4866-8eb6-b03aeb55d84e)
 
-##Gracias por tomarse el tiempo de ver la presentacion.
+## Gracias por tomarse el tiempo de ver la presentacion.
