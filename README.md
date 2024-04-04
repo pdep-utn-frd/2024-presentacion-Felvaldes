@@ -5,10 +5,11 @@ Mi nombre es Felipe Valdés, tengo 20 años y actualmente estoy cursando segundo
 
 ## Algunos de mis pasatiempos son:
 - jugar a la pelota 
-![foto gh 1](https://www.google.com/url?sa=i&url=http%3A%2F%2Fwww.futbolformativo.com.ar%2F2011%2F01%2Fla-tecnica-en-el-futbol-de-hoy.html&psig=AOvVaw3Ij3I4oFuMnlR5KOPAHG8H&ust=1712335980925000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPix1-GCqYUDFQAAAAAdAAAAABAE)
+![foto gh 1](https://github.com/pdep-utn-frd/2024-presentacion-Felvaldes/assets/164426887/58fbfbe5-7007-4703-a31f-55535d01d989)
 - ver a los perros de boca 
-![foto gh 1](https://www.google.com/url?sa=i&url=https%3A%2F%2Flucescei.com%2Fla-bombonera-late-mas-fuerte-que-nunca-con-la-iluminacion-de-thorn%2F&psig=AOvVaw2PO6al8LP_48jVAgE2sjCL&ust=1712336163019000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMj7j7iDqYUDFQAAAAAdAAAAABAJ)
+![foto gh 1](https://github.com/pdep-utn-frd/2024-presentacion-Felvaldes/assets/164426887/131a1ccc-51d5-4083-a65c-66969e16c346)
 - pegar gorras en counter 
-![foto gh 1](C:\Users\felipe\Pictures\Screenshots\Captura de pantalla 2024-04-04 140011.png)
+![foto gh 1](https://github.com/pdep-utn-frd/2024-presentacion-Felvaldes/assets/164426887/e15a8c05-02b0-43f0-b12c-f4df83ecde0e)
 - programar
-![foto gh 1](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.enriquedans.com%2F2023%2F06%2Faprender-a-programar-si-pero-no-esperes-dedicarte-al-desarrollo-de-software-por-ello.html&psig=AOvVaw0XdfHXLaQccpGHTjHlT2Za&ust=1712336526626000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCOiD3uOEqYUDFQAAAAAdAAAAABAE)
+![foto gh 1](https://github.com/pdep-utn-frd/2024-presentacion-Felvaldes/assets/164426887/a1bf95e6-c03b-4866-8eb6-b03aeb55d84e)
+
